@@ -11,3 +11,7 @@ Vous en avez pas marre avec votre sanglier ?
 Tête de mort !
 
 Le sanglier avait-il mangé 5 fruits et légumes par jour?
+
+*Manquait-il de calcium? Etait-ce les hormones?*
+*Le tout étant qu'il nous poursuivait à vélo et qu'il ne voulait pas nous lâcher. Et soudain...*
+
