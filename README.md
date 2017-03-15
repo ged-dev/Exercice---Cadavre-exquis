@@ -1,1 +1,4 @@
-# Exercice---Cadavre-exquis
+# Prendre son train
+
+> **Fin des cours.** 
+Quelqu'un se propose de nous conduire jusqu'à la gare pour essayer d'avoir le train qui arrive dans quelques minutes. On lui demande de prendre un raccourci mais il semble que la route prise soit quelque peu étrange... C'est alors que...
