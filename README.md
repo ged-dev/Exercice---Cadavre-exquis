@@ -11,3 +11,10 @@ Vous en avez pas marre avec votre sanglier ?
 Tête de mort !
 
 Le sanglier avait-il mangé 5 fruits et légumes par jour?
+Le sanglier alla chez le dentiste.
+Il realisa qu'il avait des carries et que ses petites dents lui feraient mal sans pplomb.
+Il alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle 
+Il alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle 
+Il alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle 
+Il alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle 
+l alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle !l alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle !l alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle !l alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle !l alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle !Il alla donc dans la pompe à essence la plus proche pour faire le plein de sans pplomb car il était rebelle !!!!!
