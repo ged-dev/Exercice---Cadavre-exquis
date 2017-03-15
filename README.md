@@ -6,3 +6,6 @@ Quelqu'un se propose de nous conduire jusqu'à la gare pour essayer d'avoir le t
 Vous imaginez bien, ce n'était pas un raccourci ...
 
 Un sanglier arriva ! Il n'etait pas ordinaire, il avait sur sa tete ... une feuille de salade.
+
+Vous en avez pas marre avec votre sanglier ? 
+Tête de mort !
