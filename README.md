@@ -9,3 +9,5 @@ Un sanglier arriva ! Il n'etait pas ordinaire, il avait sur sa tete ... une feui
 
 Vous en avez pas marre avec votre sanglier ? 
 Tête de mort !
+
+Le sanglier avait-il mangé 5 fruits et légumes par jour?
