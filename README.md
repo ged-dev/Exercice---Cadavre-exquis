@@ -5,5 +5,4 @@ Quelqu'un se propose de nous conduire jusqu'à la gare pour essayer d'avoir le t
 
 Vous imaginez bien, ce n'était pas un raccourci ...
 
-Un sanglier arriva ! Il n'etait pas ordinaire, il avait sur sa tete ...
-
+Un sanglier arriva ! Il n'etait pas ordinaire, il avait sur sa tete ... une feuille de salade.
